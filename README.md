@@ -17,4 +17,4 @@ so be careful, don't open his .exe files (warning: he'll probably try to deny it
 whatever it is, it's putting you on its network so you can report it.
 
 Youtube (go report him) : https://www.youtube.com/@kreyze
-Discord (go report him) : [https://discord.gg/EjsqNaYk](https://discord.gg/kreyze)https://discord.gg/kreyze
+Discord (go report him) : https://discord.gg/kreyz
